@@ -6,16 +6,16 @@ Want to learn the 99,999 tricks for free Fire Diamond Hack 99.999? We've done i
 
 
   `CLICK HERE Free Fire Hack.
-  <https://genrates.xyz/94f8d32>`_
+  <https://gamerschice.me/freefire>`_
 
   `CLICK HERE Free Fire Hack.
-  <https://genrates.xyz/94f8d32>`_
+  <https://gamerschice.me/freefire>`_
 
   `CLICK HERE Free Fire Hack.
-  <https://genrates.xyz/94f8d32>`_
+  <https://gamerschice.me/freefire>`_
 
   `CLICK HERE Free Fire Hack.
-  <https://genrates.xyz/94f8d32>`_
+  <https://gamerschice.me/freefire>`_
 
 Important Topics-
 
